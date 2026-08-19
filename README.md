@@ -1,2 +1,0 @@
-# della
-della make up
